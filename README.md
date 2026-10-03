@@ -3,7 +3,7 @@
   <img width="536" height="210" alt="1000022410" src="https://github.com/user-attachments/assets/b604f762-a227-49cb-be3f-66066218808e" />
 
    [![Typing SVG](https://readme-typing-svg.demolab.com?font=isometra&duration=4000&pause=1000&color=F7F7F7&background=000000&width=435&lines=✃Same+lies.+Different+person𓄧꒷꒦..)](https://git.io/typing-svg)
-  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+  ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
   
 # Helo!! I am Wynn, or u could call m UnTrusty. =^_^=
 <img width="535" height="167" alt="1000022408" src="https://github.com/user-attachments/assets/aed21b17-fb61-429f-bfe1-81aee243e493" />
