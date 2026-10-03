@@ -9,7 +9,6 @@
 <img width="535" height="167" alt="1000022408" src="https://github.com/user-attachments/assets/aed21b17-fb61-429f-bfe1-81aee243e493" />
 
 
-## Old friends dni. ok?
 `You and I are no different.`
 
 ˖ ݁♬⋆.˚𝄞 My current fd: UU SMP. 
