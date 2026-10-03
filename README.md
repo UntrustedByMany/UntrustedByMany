@@ -19,7 +19,7 @@ I won't add anyone if they're not in the same fandom as me꩜ .ᐟ
 
 
 ✚.𖥔 ݁ The violence of my emotion. ˖۶ৎ
-![Boundary Breaker DNI](https://img.shields.io/badge/Boundary+Breaker+DNI-🚫-white)
+![Boundary Breaker DNI](https://img.shields.io/badge/Boundary+Breaker+DNI-⚠︎-white)
 
  ❀࿐ Wynn out! Bbai!!! (˶˃ ∇ ˂˶)
 
