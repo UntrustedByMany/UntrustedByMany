@@ -21,6 +21,9 @@ I won't add anyone if they're not in the same fandom as me꩜ .ᐟ
 ✚.𖥔 ݁ The violence of my emotion. ˖۶ৎ
 ![Boundary Breaker DNI](https://img.shields.io/badge/Boundary+Breaker+DNI-⚠︎-white)
 
+<img width="500" height="281" alt="1000022409" src="https://github.com/user-attachments/assets/f1f61260-57a3-4ea1-afc0-c5a75099e374" />
+
+
  ❀࿐ Wynn out! Bbai!!! (˶˃ ∇ ˂˶)
 
   ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
