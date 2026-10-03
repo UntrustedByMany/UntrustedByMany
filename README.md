@@ -19,7 +19,7 @@ I won't add anyone if they're not in the same fandom as me꩜ .ᐟ
 
 
 
-✚.𖥔 ݁ The violence of my emotion. ˖۶ৎ
+✚.𖥔 ݁ Trust — years to earn, seconds to break. ˖۶ৎ
 ![Boundary Breaker DNI](https://img.shields.io/badge/Boundary+Breaker+DNI-⚠︎-white)
 
 Them: Would u still luv me if i turned into a flower¿!?¡ (˶>⩊<˶)
