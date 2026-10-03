@@ -6,7 +6,8 @@
   ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
   
 # Helo!! I am Wynn, or u could call m UnTrusty. =^_^=
-<img width="560" height="267" alt="1000022407" src="https://github.com/user-attachments/assets/762c9ea0-29ef-472f-bc04-e58026e88a36" />
+<img width="1000" height="278" alt="1000022402" src="https://github.com/user-attachments/assets/fefcfa15-4c63-42fd-9b1e-8f19539b04bc" />
+
 
 
 ## Old friends dni. ok?
