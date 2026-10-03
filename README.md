@@ -6,7 +6,8 @@
   ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
   
 # Helo!! I am Wynn, or u could call m UnTrusty. =^_^=
-<img width="636" height="336" alt="1000022384" src="https://github.com/user-attachments/assets/5e307db2-0114-40fa-99bd-a2cc03b066a8" />
+<img width="490" height="327" alt="1000022407" src="https://github.com/user-attachments/assets/762c9ea0-29ef-472f-bc04-e58026e88a36" />
+
 
 ## Old friends dni. ok?
 `You and I are no different.`
@@ -21,6 +22,9 @@ I won't add anyone if they're not in the same fandom as me꩜ .ᐟ
 ✚.𖥔 ݁ The violence of my emotion. ˖۶ৎ
 ![Boundary Breaker DNI](https://img.shields.io/badge/Boundary+Breaker+DNI-⚠︎-white)
 
+Them: Would u still luv me if i turned into a flower¿!?¡ (˶>⩊<˶)
+
+Me!!!:
 <img width="500" height="281" alt="1000022409" src="https://github.com/user-attachments/assets/f1f61260-57a3-4ea1-afc0-c5a75099e374" />
 
 
