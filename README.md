@@ -11,7 +11,7 @@
 
 `You and I are no different.`
 
-˖ ݁♬⋆.˚𝄞 My current fd: UU SMP. 
+˖ ݁♬⋆.˚𝄞 My main fd: UU SMP. 
 I won't add anyone if they're not in the same fandom as me꩜ .ᐟ
 
 ‹𝟹 Most fav myct: Wifies˚.𐂯 ᵎᵎ
